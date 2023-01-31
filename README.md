@@ -1,4 +1,4 @@
-### :woman_technologist: About me :
+### :About me :
 
 :hearts: Закончила мехмат, люблю математику и имею опыт преподавания. 
 
